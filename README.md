@@ -42,8 +42,6 @@ TO A REGULAR USER
 
 ![image](https://github.com/user-attachments/assets/7347b742-11db-4e43-9362-d004af1704ed)
 
-![image](https://github.com/user-attachments/assets/16d3b8db-6d7a-426d-99bf-d1e5b105ec00)
-
 ![image](https://github.com/user-attachments/assets/5afcecf9-8b65-4aa7-8933-1ffa164b8168)
 
 ![image](https://github.com/user-attachments/assets/fed82cf7-4479-4643-a0d2-9fdc526c7c8a)
